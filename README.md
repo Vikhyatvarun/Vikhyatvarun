@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Vikhyatvarun
-- 👀 I’m interested in GAMING/CODING/SPACE/SCIENCE 
-- 🌱 I’m currently learning B.Sc
 - 📫 This is my INSTAGRAM account - vikhyatvarun
 
 <!---
